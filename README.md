@@ -9,4 +9,4 @@ If you're a fan of grunge or alternative rock music, then you most likely have a
 
 As the band's popularity has grown, Kurt Cobain (vocals, guitar, songwriting), Krist Novoselic (bass), and Dave Grohl (drums) have all developed distinct personas with both bad and good reputation--Cobain being the most notable.
 
-![Kurt](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gq.com%2Fstory%2Fkurt-cobain-grunge-movement-seattle&psig=AOvVaw3TU1ZC4Mp2PLdT0hLdDMKU&ust=1702004436576000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCNDC3dWs_IIDFQAAAAAdAAAAABAI)
+![Kurt](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gq.com%2Fstory%2Fkurt-cobain-grunge-movement-seattle&psig=AOvVaw3TU1ZC4Mp2PLdT0hLdDMKU&ust=1702004436576000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCNDC3dWs_IIDFQAAAAAdAAAAABAa)
