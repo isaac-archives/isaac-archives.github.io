@@ -5,7 +5,7 @@ Rheane Markyla N. Antioquia
 
 If you're a fan of grunge or alternative rock music, then you most likely have a song or two from Nirvana on your Apple Music or Spotify playlist. Nirvana is one of the biggest and most influential bands in music history. Formed in Seattle in 1987, they pretty much single-handedly catapulted alternative music into the mainstream when their second album, Nevermind, took the music industry by surprise and turned popular culture on its head on its release in 1991. Their mix of dirgey, down-tuned rock’n’roll, punk rock spirit and abstract lyrics originally captured the imagination of the increasingly disaffected Generation X youth, but continues to shape and inform rock music today.
 
-![Nirvana](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.loudersound.com%2Ffeatures%2Fthe-30-best-nirvana-songs-of-all-time&psig=AOvVaw2UuDuwz9LzcHS1CGhx25lX&ust=1702004775808000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCPDalPmt_IIDFQAAAAAdAAAAABAS)
+![Nirvana](https://www.google.com/url?sa=i&url=https%3A%2F%2Famadaun23.tumblr.com%2Fpost%2F74653205938%2Fnirvana-oct-23-1990-in-london-q-do-you-remember&psig=AOvVaw0HRKssIu-K4CypIqgQ028x&ust=1702004946374000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCPihuMuu_IIDFQAAAAAdAAAAABAT)
 
 As the band's popularity has grown, Kurt Cobain (vocals, guitar, songwriting), Krist Novoselic (bass), and Dave Grohl (drums) have all developed distinct personas with both bad and good reputation--Cobain being the most notable.
 
